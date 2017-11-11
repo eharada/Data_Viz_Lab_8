@@ -27,7 +27,7 @@ To get return on investment, we want to compare at the tuition for Santa Clara U
 
 ### Final Fact Sheet:
 
-![image](https://user-images.githubusercontent.com/32119820/32692584-7a720656-c6cf-11e7-94a6-5547b677e6c7.png)
+![image](https://user-images.githubusercontent.com/32119820/32692678-4f14baa6-c6d1-11e7-8db0-fc07a7c7ebdd.png)
 
 Prospective students should enroll in the MSIS program because our graduates are able to earn the highest return on investment. Other master's programs at SCU are good, but they don't earn as high of a salary as MSIS alumni. One of the reasons that graduates are able to see a high ROI is because they work at elite companies. 
 
